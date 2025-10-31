@@ -1,2 +1,2 @@
-# Anim Tred Studio
-Anim Tred Studio By Eddy Ayala
+# Eddy Alonso Personal
+Hello My name is Eddy
