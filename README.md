@@ -1,2 +1,2 @@
-# EAAQ Personal
-Hello My name is Eddy Alonso Ayala Quispe, All Languages Allowed
+# EAAQ2007 Personal WYTV
+All Languages Allowed, Go Watching YouTube Videos
