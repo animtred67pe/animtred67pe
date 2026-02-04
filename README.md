@@ -1,2 +1,2 @@
-# EAAQ2007 Personal WYTV
-All Languages Allowed, Go Watching YouTube Videos
+# EAAQ2007 Fan
+All Languages Allowed, Eddy Alonso Ayala Quispe
